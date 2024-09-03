@@ -1,4 +1,4 @@
-![Header GIF](https://drive.google.com/uc?export=view&id=19MUTnR5EJ2NkHvdaUdB77JaBoRY2p8kw)
+![Header GIF](https://github.com/magno12345/magno12345/blob/main/ver1.gif)
 
 
 # 💫 About Me:
