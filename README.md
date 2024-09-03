@@ -2,7 +2,7 @@
 
 
 # 💫 About Me:
-hola soy un cientifico de datos
+hi
 
 
 ## 🌐 Socials:
